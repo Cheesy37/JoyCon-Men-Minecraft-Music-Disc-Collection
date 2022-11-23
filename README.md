@@ -1,4 +1,4 @@
-Layer Cake Replaces | C418: Blocks 
+Layer Cake Replaces | C418: Blocks
 Battle for Everyone's Souls Replaces| C418: Cat
 Yaldabaoth Replaces | C418: Chirp
 The Fog Replaces | C418: Eleven
